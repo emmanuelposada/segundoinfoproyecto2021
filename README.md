@@ -1,1 +1,0 @@
-# segundoinfoproyecto2021
